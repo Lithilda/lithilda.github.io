@@ -1,0 +1,73 @@
+---
+title: 走进青岛（二）
+id: 142
+categories:
+  - 外面的世界
+date: 2010-05-22 23:26:07
+tags:
+---
+
+<div id="msgcns!DA984E57EDE76A7C!1899" class="bvMsg">
+
+      隔了这么久，继续来写青岛游记，虽然已经没有趁热打铁的劲头了，但我还是会努力把这很久很久以来的第一篇游记写完整的。看来我又变懒了些，真对不起大家。
+
+去了青岛水族馆。之前本来想好了，不打算去这个地方的。没想到走到水族馆边，却意外被它吸引了，不但掏银子买了全票，还绕了路去看之前错过的馆。虽然没看到动物表演，但还是很开心的。第一个去了水母馆，馆里一缸一缸的全是水母。以前基本上只在餐桌上见过实体水母，而且那时它们已然被分尸了。第一次看到这么多水母，立刻就被它们打动了：水母真是一种优雅的生物啊！虽然这种腔肠动物的身体很不幸地只有一个开口，兼具口和排泄的功能，但是看着他们在水中自在地摇摆，的确是种享受。与我猜想得不同，大多数水母都是头朝下蠕动的，看来头太大很不方便啊。如果我以后有了房子，就在客厅里养一大缸水母，每天看它们做伸展运动，假如看腻了，还可以卖给饭店，然后换一缸新品种![](http://s.xnimg.cn//imgpro/emotions/tie/2.gif)
+
+码了这么多字，来张pic吧，青岛著名雕塑，五月的风：[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_AuKp_12750001af382d12.jpg "b_large_AuKp_12750001af382d12")](http://lithilda.info/wp-content/uploads/2010/05/b_large_AuKp_12750001af382d12.jpg)
+
+<span class="Apple-style-span" style="color: #333333;">奥帆中心。奥运会期间，码头尽头的火炬应该是燃烧着的吧。[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_ihPD_12710000b62e2d12.jpg "b_large_ihPD_12710000b62e2d12")](http://lithilda.info/wp-content/uploads/2010/05/b_large_ihPD_12710000b62e2d12.jpg)</span>
+
+从照片就看得出，这天的天气非常差，太阳基本就没有露面。但第二天起床就发现了杯具：看不到太阳绝不代表没有紫外线，我在毫不知情的情况下，就被晒得很夸张，也终于明白为什么昨天晚上脸就开始发烫。把这作为我二十四岁生日的第一个发现，多少算有点杯具吧。
+
+退了房，直奔青岛啤酒街。
+
+开始还以为那些大啤酒罐是街上的装饰，后来才发现它们都属于青岛啤酒厂，估计是生产设备吧。[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_JwtN_3746000131df2d0b.jpg "b_large_JwtN_3746000131df2d0b")](http://lithilda.info/wp-content/uploads/2010/05/b_large_JwtN_3746000131df2d0b.jpg)
+
+啤酒街上有特色的凳子：[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_d5Fo_37460001339a2d0b1.jpg "b_large_d5Fo_37460001339a2d0b")](http://lithilda.info/wp-content/uploads/2010/05/b_large_d5Fo_37460001339a2d0b1.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_h9dG_3730000002f02d0b.jpg "b_large_h9dG_3730000002f02d0b")](http://lithilda.info/wp-content/uploads/2010/05/b_large_h9dG_3730000002f02d0b.jpg)
+
+啤酒街上的阴井盖也都很有特色，画着卡通，还写着用途。找到了一只小老虎，看来它是管电力的：
+
+[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_GDz9_12e4000007772d14.jpg "b_large_GDz9_12e4000007772d14")](http://lithilda.info/wp-content/uploads/2010/05/b_large_GDz9_12e4000007772d14.jpg)
+
+所谓啤酒博物馆，也就是青岛啤酒厂的一部分，开辟出来给人参观的。一进馆，我就有点泄气了，原来青岛啤酒之所以这么有名，就因为是德国人建的啊~ 再看下去，又发现青岛啤酒是皮尔森型啤酒，这下更崩溃了，当初一行五人路过皮尔森，也顺便拎了一扎皮尔森啤酒，我对那个酒的印象就只有：苦。不过那时在皮尔森的啤酒博物馆由于语言不通又没讲解，也没怎么看明白，这次可算是补上了。这又一次印证了我一贯的坚持：博物馆还是要看中文的，外文博物馆基本上外面看看也就无憾了。除非卢浮宫这样的，即便人家牛得连英文说明也不写，但看在免门票的份上，就进去凑个热闹吧。
+
+这是参观完毕送的一小杯原浆啤酒跟一包啤酒豆。在这里，我还多蹭了一杯原浆，不过不是因为贪杯，完全是无意的~[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_mRuw_12ea000016c32d14.jpg "b_large_mRuw_12ea000016c32d14")](http://lithilda.info/wp-content/uploads/2010/05/b_large_mRuw_12ea000016c32d14.jpg)
+
+下一层楼，又送了一杯纯生：
+
+![](http://lithilda.info/wp-content/uploads/2010/05/b_large_f9dU_12f0000072302d14.jpg "b_large_f9dU_12f0000072302d14")
+
+最后还买了一只开瓶器，15大洋。大概在欧洲看贵开瓶器看太多了，竟然觉得这个价钱也可以接受，看，才一欧多。[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_9SCF_12dc0000030d2d14.jpg "b_large_9SCF_12dc0000030d2d14")](http://lithilda.info/wp-content/uploads/2010/05/b_large_9SCF_12dc0000030d2d14.jpg)
+
+三杯酒下肚，我竟然就开始头晕了，看来我的酒量明显小于预期。本来还打算在啤酒街上找个酒吧喝一杯的，这下不敢再喝了，还是乖乖吃饭吧。来了青岛，当然要吃海鲜。不过青岛人的海鲜范围非常广泛，有一种叫海肠的，看起来就像超大号的不带壳蜗牛，我犹豫再三还是没敢点，怕万一吃不下去。接下来就是重头戏，我的生日大餐了。
+
+第一道菜，海星，清蒸的。这样一直东西摆在盘子里，看起来真像是工艺品，让我不知该如何下手。[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_LtqE_11740000c8482d0c.jpg "b_large_LtqE_11740000c8482d0c")](http://lithilda.info/wp-content/uploads/2010/05/b_large_LtqE_11740000c8482d0c.jpg)
+
+于是，我就非常暴力地把它的一只腿拧了下来，更暴力地拨开硬硬的皮，把里面那些黄色的东西挑出来吃了：[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_ipHS_126f000078ab2d12.jpg "b_large_ipHS_126f000078ab2d12")](http://lithilda.info/wp-content/uploads/2010/05/b_large_ipHS_126f000078ab2d12.jpg)
+
+第二道菜，蛤蜊，这个比较正常。[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_iKLA_4a5a000248162d10.jpg "b_large_iKLA_4a5a000248162d10")](http://lithilda.info/wp-content/uploads/2010/05/b_large_iKLA_4a5a000248162d10.jpg)
+
+第三道，某贝类，也是按只卖的，点了一只：
+[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_aP9E_27f5000147262d11.jpg "b_large_aP9E_27f5000147262d11")](http://lithilda.info/wp-content/uploads/2010/05/b_large_aP9E_27f5000147262d11.jpg)
+
+第四道，又是之前没尝过的，海胆炖蛋。吃完之后就只剩一个中空的刺壳，造型像个鸟巢：[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_6rAy_37440000cf002d0b.jpg "b_large_6rAy_37440000cf002d0b")](http://lithilda.info/wp-content/uploads/2010/05/b_large_6rAy_37440000cf002d0b.jpg)
+
+第五道，这个馆子的厨师推荐菜，某鱼和白菜，味道不错，只是偏甜。[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_IyXE_3c4a0001e1ee2d13.jpg "b_large_IyXE_3c4a0001e1ee2d13")](http://lithilda.info/wp-content/uploads/2010/05/b_large_IyXE_3c4a0001e1ee2d13.jpg)
+
+最后再来一壶茶，崂山绿，青岛的本地茶。可惜吃饭时喝茶，也品不出什么感觉来。[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_Nb4u_3c48000149102d13.jpg "b_large_Nb4u_3c48000149102d13")](http://lithilda.info/wp-content/uploads/2010/05/b_large_Nb4u_3c48000149102d13.jpg)
+
+本来还想去极低海洋世界的，但由于我在某类似历史建筑一条街的地方浪费了太多时间，后来还是决定放弃看动物表演，转而在海边多徜徉了一会。有一件事情可以确定：我肯定被去机场的那个出租司机给宰了。不过出门在外，这种事情本也很难完全避免吧。上一张我最喜欢的海滩类型：“乱石穿空，惊涛拍岸，卷起千堆雪”。不过海这种东西，是拍不出感觉的，随便上一张意思意思就是了：[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_Lksj_41db0001dcee2d0e.jpg "b_large_Lksj_41db0001dcee2d0e")](http://lithilda.info/wp-content/uploads/2010/05/b_large_Lksj_41db0001dcee2d0e.jpg)
+
+还有一个巨大的锚，仔细看能找到一小团黄色的东西，那是某只香蕉的皮，拍完之后才发现。[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_X3iy_41d9000146a72d0e.jpg "b_large_X3iy_41d9000146a72d0e")](http://lithilda.info/wp-content/uploads/2010/05/b_large_X3iy_41d9000146a72d0e.jpg)
+
+在海边看到两名女子开着一辆宝马敞篷小跑车，脑海中顿时闪现出两个字：二奶。唉，肯定是前阵子看《蜗居》被影响了，以后不能这样，要健康点。
+
+青岛这个城市，人非常非常少，跟上海比起来，简直就像没人一样。有个出租司机告诉我，夏天最高只有28度，30度是很少见的。同志们啊，如果有夏天想度假的，就去青岛吧，不然也太对不起这个温度了。青岛的旅游地图虽然卖得很贵（8块），不过做得还不错，可以起到导游的目的。只是地图上标了太多特色街，连文具一条街都有，想要不失望的话，还是要仔细斟酌一下的。
+
+最后一张图，GE的鼠标垫。本打算放在公司的，结果一不小心就带到青岛去了。[![](http://lithilda.info/wp-content/uploads/2010/05/b_large_PhBa_41cb00000d562d0e.jpg "b_large_PhBa_41cb00000d562d0e")](http://lithilda.info/wp-content/uploads/2010/05/b_large_PhBa_41cb00000d562d0e.jpg)
+
+最后说一句，今天又买了本《科幻世界》，这期封面比上期好看多了。
+
+</div>

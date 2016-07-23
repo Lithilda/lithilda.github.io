@@ -1,0 +1,110 @@
+---
+title: 肯尼亚看图说话（二）
+id: 872
+categories:
+  - 外面的世界
+date: 2013-10-31 10:33:50
+tags:
+---
+
+接下来就进入了我们本次旅行的高潮部分：马赛马拉。不管有没有角马过河，这里都是肯尼亚之旅的重心，仔细回想，我们也的确是在这里看到了最多最特别的景象。
+
+到达马赛的第一天就去坐了热气球。摸黑赶往气球场地，这是一排躺在地上，正在充气的热气球：
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00592.jpg "DSC00592")](http://lithilda.info/wp-content/uploads/2013/10/DSC00592.jpg)
+
+一只只气球，从地平线上冉冉升起。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00602.jpg "DSC00602")](http://lithilda.info/wp-content/uploads/2013/10/DSC00602.jpg)
+
+天亮以后，飞上高空。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00630.jpg "DSC00630")](http://lithilda.info/wp-content/uploads/2013/10/DSC00630.jpg)
+
+离开热气球早餐营地没多久，就遇到了我们此行的第一头大型猫科，一头怀孕的母狮。她慢悠悠地穿过马路，找了一棵小树的阴影，舒服地躺在里面。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00640.jpg "DSC00640")](http://lithilda.info/wp-content/uploads/2013/10/DSC00640.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00647.jpg "DSC00647")](http://lithilda.info/wp-content/uploads/2013/10/DSC00647.jpg)
+
+就先盘点一下我们在马拉遇到的肉食动物吧。下面这只雄赳赳迈步向前的母狮正打算去去捕点儿猎物，正是因为决定尾随她，我们无比幸运地看到了狮子追捕角马的一幕。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00938.jpg "DSC00938")](http://lithilda.info/wp-content/uploads/2013/10/DSC00938.jpg)
+
+冲刺前，全神贯注。虽然她已吸引了众多尾随者，但大家都屏息凝神，关掉引擎，不敢发出半点声音，生怕惊扰了她的捕猎计划。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00944.jpg "DSC00944")](http://lithilda.info/wp-content/uploads/2013/10/DSC00944.jpg)
+
+发力途中。看到远处低头吃草的角马了吗？它还完全不知道将要面临什么样的命运。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/IMG_0599.jpg "IMG_0599")](http://lithilda.info/wp-content/uploads/2013/10/IMG_0599.jpg)
+
+狮子不愧为草原之王，三下五除二，一只角马已被咬断喉管，却还蹬腿儿挣扎，她所要做的只是死死压住，等待角马断气。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00946.jpg "DSC00946")](http://lithilda.info/wp-content/uploads/2013/10/DSC00946.jpg)
+
+确认角马已经断气之后，走到后方啃了起来。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00956.jpg "DSC00956")](http://lithilda.info/wp-content/uploads/2013/10/DSC00956.jpg)
+
+狮子是草原上最放松的动物了，不必躲藏，不必拘束，不管在哪里，都表现得从容优雅；哪怕被无数游客举着长枪大炮围观，也能睡得安稳踏实；肚子饿了只要随便走几步，就会遇到羚羊斑马，这生活，实在是太惬意了~
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00999.jpg "DSC00999")](http://lithilda.info/wp-content/uploads/2013/10/DSC00999.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC01035.jpg "DSC01035")](http://lithilda.info/wp-content/uploads/2013/10/DSC01035.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC01052.jpg "DSC01052")](http://lithilda.info/wp-content/uploads/2013/10/DSC01052.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/IMG_0679.jpg "IMG_0679")](http://lithilda.info/wp-content/uploads/2013/10/IMG_0679.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC01074.jpg "DSC01074")](http://lithilda.info/wp-content/uploads/2013/10/DSC01074.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC01080.jpg "DSC01080")](http://lithilda.info/wp-content/uploads/2013/10/DSC01080.jpg)
+
+草原之王和它的王妃：
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC01095.jpg "DSC01095")](http://lithilda.info/wp-content/uploads/2013/10/DSC01095.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC01114.jpg "DSC01114")](http://lithilda.info/wp-content/uploads/2013/10/DSC01114.jpg)
+
+虽然马拉大草原上狮子的数量并不少，但你如果以为看到狮子是一件很容易的事，那就错了。草原之王当然不会躲避人类，但他们最喜欢的事情，就是趴在树荫下睡大觉，这时候如果你想在开车经过的时候能够分辨出他们，那真是太考验眼力了。我们这样的外人，连一只趴在草原里的狮子，都要导游指了又指才能看到，对于寻觅树下的睡狮，早就知难而退了~
+
+草丛中的狮子。仔细看看，就可能多发现几只哦。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00838.jpg "DSC00838")](http://lithilda.info/wp-content/uploads/2013/10/DSC00838.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00846.jpg "DSC00846")](http://lithilda.info/wp-content/uploads/2013/10/DSC00846.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00982.jpg "DSC00982")](http://lithilda.info/wp-content/uploads/2013/10/DSC00982.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC01082.jpg "DSC01082")](http://lithilda.info/wp-content/uploads/2013/10/DSC01082.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/IMG_0612.jpg "IMG_0612")](http://lithilda.info/wp-content/uploads/2013/10/IMG_0612.jpg)
+
+同为食肉大猫，相比于狮子，猎豹和花豹都更难见到。他们数量更少，行动更隐秘，保护色也更加强大。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00712.jpg "DSC00712")](http://lithilda.info/wp-content/uploads/2013/10/DSC00712.jpg)
+
+比猎豹更少的，是野狗。我们在某个黄昏看到了三只野狗啃食一直羚羊。比起不慌不忙的狮子，野狗的吃相就差多了，一边狼吞虎咽，一边还得举目四顾，生怕其他的肉食动物回来夺食。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00863.jpg "DSC00863")](http://lithilda.info/wp-content/uploads/2013/10/DSC00863.jpg)
+
+填饱了肚皮就开始嬉戏。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00877.jpg "DSC00877")](http://lithilda.info/wp-content/uploads/2013/10/DSC00877.jpg)
+
+旁边早就等满了食腐动物，小的是秃鹫，大的是秃鹳。那被丢弃的一块东西是羚羊的胃，因为里面装满了草，所以并没有动物对它感兴趣……
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00870.jpg "DSC00870")](http://lithilda.info/wp-content/uploads/2013/10/DSC00870.jpg)
+
+有胆大的秃鹫按捺不住，来跟野狗抢食了。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/IMG_0564.jpg "IMG_0564")](http://lithilda.info/wp-content/uploads/2013/10/IMG_0564.jpg)
+
+好不容易捕到的食物，野狗也不能轻易放过，秃鹫又被赶到一边。
+
+[![](http://lithilda.info/wp-content/uploads/2013/10/DSC00889.jpg "DSC00889")](http://lithilda.info/wp-content/uploads/2013/10/DSC00889.jpg)
+
+最后，上一段狮子补角马的视频，iPhone 5 拍摄。仔细看还是能看出狮子明修栈道，暗渡陈仓的诡计。
+
+<object width="480" height="400" classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="src" value="http://www.tudou.com/v/qETXfd4Nau4/&amp;bid=05&amp;rpid=105361071&amp;resourceId=105361071_05_05_99/v.swf" /><param name="allowscriptaccess" value="always" /><param name="allowfullscreen" value="true" /><param name="wmode" value="opaque" /><embed width="480" height="400" type="application/x-shockwave-flash" src="http://www.tudou.com/v/qETXfd4Nau4/&amp;bid=05&amp;rpid=105361071&amp;resourceId=105361071_05_05_99/v.swf" allowscriptaccess="always" allowfullscreen="true" wmode="opaque" /></object>

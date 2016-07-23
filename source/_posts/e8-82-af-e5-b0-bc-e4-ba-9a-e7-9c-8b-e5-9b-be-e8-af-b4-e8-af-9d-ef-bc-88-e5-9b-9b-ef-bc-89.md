@@ -1,0 +1,103 @@
+---
+title: 肯尼亚看图说话（四）
+id: 990
+categories:
+  - 外面的世界
+date: 2015-02-25 18:39:39
+tags:
+---
+
+转眼之间，距我们离开那片神奇的大陆已一年有余，在那遥远的大草原上，角马的迁徙高峰来了又去，狮子和羚羊的生死对决还在继续，我们的导游大叔也许依然开着车穿行在灌木之间。然而，在刚刚逝去的一年里，大家的视线却离开了动物的生息繁衍，转而集中在来自非洲的死神——埃博拉病毒。而现在，连这病毒，也几乎淡出了，我这最后一点尾巴，却还没有了结。
+
+回顾这次行程，除了马赛马拉，每个地方都有自己的特色么？那肯定是有的。那么，看完马赛马拉，再去其他地方，还会觉得新奇、激动么？那就未必了。我们的第一站是安博塞利，那里的动物量仅次于马赛马拉，分分钟就征服了我这样即便在动物园也没见过瞪羚和角马的人。相信其他人都有跟我差不多的感觉，在安博塞利，不管看到羚羊还是长颈鹿，不管是落单的还是成群的，不管是离得近离得远，我们都激动得大呼小叫，一定要司机大叔停了车，拿着相机一通按，拿着望远镜一通看，当车轮开动时却还是恋恋不舍。估计大叔心里肯定在暗笑：一帮多么无知的人啊。
+
+但是，离开马拉之后，甚至是还在马拉的时候，就多少有点审美疲劳了。一方面，恶劣的气候在不断折磨人的精神，另一方面，在马拉，大家很快就取得一个共识：角马这个物种的生存策略就在于以量取胜。看惯了盖满整个草原的角马和斑马群，从路旁一直延伸到天边，直到变成蚂蚁大小，大家很快就把兴趣转移到肉食动物身上，似乎只有看到活动的肉食动物，才值得大肆兴奋一番，否则，当偶遇的驴友问你看到了什么，还真是说不出口呢。
+
+肯国不算小，交通状况又不乐观，所以做攻略的时候为路线问题很是头疼，如果是时间或预算比较紧张的驴友，其实可以只去安博塞利和马赛马拉就好，如果想看火烈鸟，去一下纳库鲁湖或者博格里亚湖，基本上也算是瞥见大草原“全貌”了。当然，如果有兴趣有时间，那么，多停留的每一天，去的每一个地方，也都不会浪费。我们的确在每个地方都看到一些不一样的东西，在最远和最后的桑布鲁，虽然游玩时间很短，但仍然收获了小花豹的大惊喜。
+
+下面进入正题，把剩下的看图说话完成吧。
+
+要说我们此行最神秘的动物，应该是犀牛吧。因为偷猎，野生犀牛的数量非常少，也让那个这种大块头的生物远离人类，我们完全没有机会近观它的尊容，更别提辨别黑犀牛和白犀牛的区别了。下面就是我们在纳库鲁看到的此行最近距离的野生犀牛了。
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/DSC01134.jpg "DSC01134")](http://lithilda.info/wp-content/uploads/2014/11/DSC01134.jpg)
+
+因为季节关系，纳库鲁只有小群火烈鸟活动：
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/IMG_0724.jpg "IMG_0724")](http://lithilda.info/wp-content/uploads/2014/11/IMG_0724.jpg)
+
+迎面而来的水牛群。本来树丛中有一只鬣狗觊觎小水牛，可惜很快就被这些庞然大物吓跑了。
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/DSC01160.jpg "DSC01160")](http://lithilda.info/wp-content/uploads/2014/11/DSC01160.jpg)
+
+向博格里亚湖进发的过程中，会经过东非大裂谷和赤道。一提到大裂谷，地球的疤痕，就会以为它一定是无比壮观的，再加上《狮子王》里木法沙的惨死，更让人抱有无限遐想。可是，也许正因为它的大，峡谷底部宽阔又平坦，不管是穿行在下面，还是站在上面朝下望，都只是觉得就是面对一座正常的山崖，丝毫没有联想的余地。至于赤道，就是下面这个牌子：
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/DSC01168.jpg "DSC01168")](http://lithilda.info/wp-content/uploads/2014/11/DSC01168.jpg)
+
+博格里亚湖的火烈鸟果然不负期望，好大一片红红的铺在水上。只可惜这种鸟儿很害羞，一旦有人就远远地离开岸边。长腿长颈本就是一种优雅的设定，再加上鲜艳的粉红色，就更使得它们充满了谜一样的魅力。面对火烈鸟，我们深刻感到手中相机的无力，无论怎么拍，取景框中的画面都远远无法和眼睛所看到的景象媲美。王勃诗云“落霞与孤鹜齐飞，秋水共长天一色“，可是当飞翔的本就如落霞般绚烂，那又是何等样的意境啊。
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/IMG_0745.jpg "IMG_0745")](http://lithilda.info/wp-content/uploads/2014/11/IMG_0745.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/IMG_0753.jpg "IMG_0753")](http://lithilda.info/wp-content/uploads/2014/11/IMG_0753.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/DSC01189.jpg "DSC01189")](http://lithilda.info/wp-content/uploads/2014/11/DSC01189.jpg)
+
+“落霞”群中有不少顽强的食府大鸟：秃鹳，比起容易受惊的火烈鸟，这些秃鹳显然更适应与人为伴，内罗毕市内也能见到，应该是被人类的垃圾堆吸引而去吧。
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/IMG_0767.jpg "IMG_0767")](http://lithilda.info/wp-content/uploads/2014/11/IMG_0767.jpg)
+
+看似祥和的画面其实并不平静，野生动物们的生存压力一点儿不比人类小啊，随时都有捕食者的恭候，享受优先的一个瞬息就可能付出生命的代价。看看低调潜伏的鳄鱼君，第一张图中的烂木头摇身一变，就成了第二张图里食物链顶端的霸主，不费力气就逮住一只大鸟：
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/DSC01193.jpg "DSC01193")](http://lithilda.info/wp-content/uploads/2014/11/DSC01193.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/IMG_0763.jpg "IMG_0763")](http://lithilda.info/wp-content/uploads/2014/11/IMG_0763.jpg)
+
+路边的长尾猴，这么标准的坐姿简直可以拿来入图谱了：
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/IMG_0785.jpg "IMG_0785")](http://lithilda.info/wp-content/uploads/2014/11/IMG_0785.jpg)
+
+离开博格里亚的路上，看到私人保护区内圈养的犀牛，拍到了此行最清晰的犀牛写真，可惜是隔着栏杆的：
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/IMG_0797.jpg "IMG_0797")](http://lithilda.info/wp-content/uploads/2014/11/IMG_0797.jpg)
+
+从博格里亚到桑布鲁又是一天艰辛的跋涉，路上经过一个瀑布。远远望去，瀑布边的树林中有一群疣猴拖家带口，跳上跳下，玩得不亦乐乎，真有点儿花果山水帘洞的意思。
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/DSC01219.jpg "DSC01219")](http://lithilda.info/wp-content/uploads/2014/11/DSC01219.jpg)
+
+桑布鲁是地理位置最偏的一个保护区，也是我们的最后一站。可能正是因为地理位置的偏远，这里有几种特产动物，虽然忙于赶路，在此处停留时间很短，但也算是见全了这些特产们。
+
+先来一张细纹斑马，它的特点就是纹路更细更密，是不是看多了有点儿晕？
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/DSC01326.jpg "DSC01326")](http://lithilda.info/wp-content/uploads/2014/11/DSC01326.jpg)
+
+东非剑羚，长长的角非常漂亮，可惜拍摄的时候天色已晚，效果都不太好。它在阿拉伯半岛也有亲戚。
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/IMG_0844.jpg "IMG_0844")](http://lithilda.info/wp-content/uploads/2014/11/IMG_0844.jpg)
+
+最有意思的还是长颈羚，长长的脖子，非常喜欢站着啃树叶，而且可以站很久。
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/DSC01252.jpg "DSC01252")](http://lithilda.info/wp-content/uploads/2014/11/DSC01252.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/DSC01251.jpg "DSC01251")](http://lithilda.info/wp-content/uploads/2014/11/DSC01251.jpg)
+
+酒店餐厅附近有个小水塘，经常吸引很多动物来喝水，这是一群找水喝的疣猪：
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/IMG_0853.jpg "IMG_0853")](http://lithilda.info/wp-content/uploads/2014/11/IMG_0853.jpg)
+
+桑布鲁最大的惊喜就是遇到一只刚离开妈妈的小花豹，也许还不习惯独自捕猎，扑了一只老鼠，仍然吃得津津有味，从头到尾一点点啃掉，直到连最后一截尾巴都吞下肚去，才满意地舔舔嘴离去了：
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/IMG_0833.jpg "IMG_0833")](http://lithilda.info/wp-content/uploads/2014/11/IMG_0833.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2014/11/IMG_0836.jpg "IMG_0836")](http://lithilda.info/wp-content/uploads/2014/11/IMG_0836.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2015/02/IMG_0839.jpg "IMG_0839")](http://lithilda.info/wp-content/uploads/2015/02/IMG_0839.jpg)
+
+[![](http://lithilda.info/wp-content/uploads/2015/02/IMG_0841.jpg "IMG_0841")](http://lithilda.info/wp-content/uploads/2015/02/IMG_0841.jpg)
+
+上视频，iphone5拍摄，可惜也是天快黑了，不太清楚。
+
+<object width="480" height="400" classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="src" value="http://www.tudou.com/v/rtfh271KcxY/&amp;bid=05&amp;rpid=105361071&amp;resourceId=105361071_05_05_99/v.swf" /><param name="allowscriptaccess" value="always" /><param name="allowfullscreen" value="true" /><param name="wmode" value="opaque" /><embed width="480" height="400" type="application/x-shockwave-flash" src="http://www.tudou.com/v/rtfh271KcxY/&amp;bid=05&amp;rpid=105361071&amp;resourceId=105361071_05_05_99/v.swf" allowscriptaccess="always" allowfullscreen="true" wmode="opaque" /></object>
+
+整理照片的时候又发现一个很有趣的视频，安博塞利拍的小象吃奶，大象妈妈百无聊赖，就用灵巧的鼻子卷起地下的草喂进嘴里。可惜那土地在我们看来实在是贫瘠，恐怕吃进嘴的沙子也要比草多吧？对于大象这么庞大的体格，如果靠搜刮这一星半点的枯草根，那得吃多少才够。
+<object width="480" height="400" classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="src" value="http://www.tudou.com/v/kEV1_PL4fVY/&amp;bid=05&amp;rpid=105361071&amp;resourceId=105361071_05_05_99/v.swf" /><param name="allowscriptaccess" value="always" /><param name="allowfullscreen" value="true" /><param name="wmode" value="opaque" /><embed width="480" height="400" type="application/x-shockwave-flash" src="http://www.tudou.com/v/kEV1_PL4fVY/&amp;bid=05&amp;rpid=105361071&amp;resourceId=105361071_05_05_99/v.swf" allowscriptaccess="always" allowfullscreen="true" wmode="opaque" /></object>
+
+&nbsp;

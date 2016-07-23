@@ -1,0 +1,93 @@
+---
+title: 墨尔本的动物园们
+id: 625
+categories:
+  - 外面的世界
+date: 2013-02-23 23:38:14
+tags:
+---
+
+在北半球阴风怒号的寒冷季节，能够躲去南半球沐浴明媚阳光，不得不说是一件幸事。这就是我去年十一、十二月的幸运之行，在这个安逸国度的安逸城市里，享受了五个星期的春天，这么长的春天，在上海应该已经绝迹了吧。不过要说是春天，也不完全就是春天，当地人的话说：别处都是一年有四季，我们墨尔本是一天有四季。要我说，一天有四季倒也不确切，应该说一周有四季，那就八九不离十了。在这种独特的临海沙漠气候下，才格外意识到天气预报和温度计的重要性。
+
+当地还有人告诉我们说澳大利亚上空的臭氧层是有空洞的，所以这里的太阳格外毒，他们涂绵羊油来保护皮肤。回来后在网上搜了一下，臭氧空洞貌似还没到澳洲，只在南极上空而已，但澳大利亚的皮肤癌得病率的确是非常高，那大概要归咎与他们对日光浴的酷爱了。
+
+在墨尔本过了五个周末，看得最多的还是动物，从来没见过一个城市，能有这么多的动物园，仿佛散布在每个角落，不经意间就会路过一块块动物园的指示牌。也许，整个澳大利亚就是一座大的野生动物园，人就像是外来客，这片土地上与动物共处。没有自驾过，所以并未深入荒蛮地带看路边的袋鼠和考拉，但就在各色的动物园里，仍然能感受到一种友善与和谐。
+
+不知是不是以前玩得太粗糙急躁了，在墨尔本，放松许多也细致许多，去一个地方之前往往要把官网搜出来研究上好几遍，惊喜地发现，这里的动物园、植物园、博物馆、甚至美术馆，基本上每天都有很多免费导游项目，有工作人员或者志愿者为大家讲解、演示，听着他们如数家珍的讲述，一下子就会被那满腔热情所感染，觉得自己和那些动植物同处一个星球，能看到它们、了解它们，实在是件让人愉快的幸事。不过因为都是英文讲解，所以碰到植物和冷僻的动物，基本上就不知所云了……
+
+上图之前扯点别的。在墨尔本经历过两个团的一日游，宏城(GrandCity)和网通(AUBEST)，宏城的一日游绝对是白菜价，但是团大，车子也比较差，行程安排上也是走马观花，尤其是大洋路，我们去坐了直升飞机，就连去海边的时间都没有了，还好录了视频留念，不然还真不知道到底看了什么。相比之下，网通要贵不少，但那是相当舒服啊，基本上就是自驾带司机导游的感觉，玩得很爽。
+
+再说一点，如果去冷僻景点，有能力最好还是自驾，比旅行社便宜不少，又比公交快太多，尤其赶上周末，一班车一等就是一小时，不做好心理准备是会崩溃的~
+
+下面上王道了，主要是动物。去之前基本只知道考拉和袋鼠，后来才发现，原来澳洲这片神奇的大陆，孕育了有很多种有袋动物。
+
+沙袋鼠(wallaby)，在我眼里就是小号的袋鼠而已，颜色好像比较灰，其他没觉得有多大差别。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/DSC01701.jpg "DSC01701")](http://lithilda.info/wp-content/uploads/2013/02/DSC01701.jpg)
+
+这个是正宗的Kangaroo袋鼠了，本来去之前还有点害怕他们健壮的体格，不过动物园里的都很友好，不喂食的话基本是无视人类的。可惜没有近距离看到过母袋鼠的育儿袋，听人说是怕繁殖太快，动物园里都只养公的，不知道是不是真的。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0302.jpg "IMG_0302")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0302.jpg)
+
+这货就不用说了，没有不知道的。虽然在不同动物园里见到过很多只，但基本上不是吃就是睡，动作频率非常之低，只有在Healesville保护区见到一只小考拉，上窜下跳很是活泼。这张照片也是在那里多付了10块钱才能近距离站在后方拍摄的，不过这只已经成年，在我们参观的整个过程中都保持着这个姿势没有动过……这也是我与考拉的最近距离接触了，听说飞利浦到有可以抱考拉的动物园，不过没去过。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0251.jpg "IMG_0251")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0251.jpg)
+
+针鼹，也是澳洲特有的动物，鼻子和口像跟管子，也是为了吃蚂蚁准备的。可惜它爬得太快，都没来得及拍到脸，从后面看就像个刺猬。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0250.jpg "IMG_0250")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0250.jpg)
+
+负鼠标本，貌似也有袋？这个不确定。但这个物种仍然活跃在各个角落，听住在郊外的同学说，夜里总是跳到她家屋顶和窗边。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0256.jpg "IMG_0256")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0256.jpg)
+
+袋熊，应该说也是一种夜行动物，在大部分动物园都是躲在黑洞里睡觉，很难一睹真容。很吃惊在Warrook见到的这只极端活泼，窜来窜去，还不断趴在栏杆上要胡萝卜吃，力气大得很，不知道是不是也处在青春躁动期。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/08-DEC-PAX-069.jpg "08 DEC PAX 069")](http://lithilda.info/wp-content/uploads/2013/02/08-DEC-PAX-069.jpg)
+
+塔斯马尼亚恶魔，更加彻底的夜行动物，看得最清楚的也就是这样熟睡的身影了。摄于去飞利浦岛路过的Maru动物园。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/DSC01780.jpg "DSC01780")](http://lithilda.info/wp-content/uploads/2013/02/DSC01780.jpg)
+
+奶牛，我们所有见到的动物中公认最可怜的，看它吃得是草，挤得是奶，所以成了这样一副皮包骨。挤奶也是个体力活，看起来那么大，挤起来可真是费劲，那么细的一缕，看到了么？这啥时候才能挤满一桶啊…… 另一个让我吃惊的真相是：奶牛在怀孕的时候产奶最多，这到底什么物种啊，怀孕的时候产奶给谁吃？这只奶牛已经快要生了，肚子上有一直倒着的小牛轮廓，这个角度小牛后腿很清晰，看得出来么？
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/PC083662.jpg "PC083662")](http://lithilda.info/wp-content/uploads/2013/02/PC083662.jpg)
+
+牧羊犬，别看它平时憨态可掬，已进入工作状态马上龇牙咧嘴面目狰狞，羊群都乖乖地指哪儿走哪儿。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0287.jpg "IMG_0287")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0287.jpg)
+
+剪羊毛表演，太神奇了，那么厚的一层羊毛，就像脱衣服似的，这羊怎么就这么听话捏？
+<object width="480" height="400" classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="src" value="http://www.tudou.com/v/85Wdqo1JIEI/&amp;rpid=105361071&amp;resourceId=105361071_05_05_99&amp;bid=05/v.swf" /><param name="allowscriptaccess" value="always" /><param name="allowfullscreen" value="true" /><param name="wmode" value="opaque" /><embed width="480" height="400" type="application/x-shockwave-flash" src="http://www.tudou.com/v/85Wdqo1JIEI/&amp;rpid=105361071&amp;resourceId=105361071_05_05_99&amp;bid=05/v.swf" allowscriptaccess="always" allowfullscreen="true" wmode="opaque" /></object>
+
+圈里剪过的和没剪过的羊，人一走近，他们就争先恐后地往里挤，可见剪羊毛对它们来说不是多么愉快的经历呀。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0298.jpg "IMG_0298")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0298.jpg)
+
+绵羊油就是从这摸着都出油的羊毛里提炼出来的，不是从羊肉里哦，所以绵羊们的性命是无虞的。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0300.jpg "IMG_0300")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0300.jpg)
+
+这么多人都在干什么呢？他们都在很认真地淘金，虽然已经这么拥挤了，但谁不希望自己是幸运儿呢。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0351.jpg "IMG_0351")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0351.jpg)
+
+我也加入了这个队伍，立马想起了小时候漫画里美国西部的落魄牛仔。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0352.jpg "IMG_0352")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0352.jpg)
+
+事实证明，有些工作是不适合我干的，奋斗了半天，结果就是这两粒考眼力的小金屑， 比同伴差太多了，唉！
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0356.jpg "IMG_0356")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0356.jpg)
+
+皇家植物园里培养的尸香魔芋，巨型的花苞马上就要绽放了，可惜我去早了点儿。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0379.jpg "IMG_0379")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0379.jpg)
+
+这个季节的植物园真是太漂亮了，他们每天都开而且不收门票哦~ 这朵开得真好看，就是不知道叫做什么。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0381.jpg "IMG_0381")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0381.jpg)
+
+书店里看到的有趣封面：《女孩纹身的龙》。
+
+[![](http://lithilda.info/wp-content/uploads/2013/02/IMG_0319.jpg "IMG_0319")](http://lithilda.info/wp-content/uploads/2013/02/IMG_0319.jpg)

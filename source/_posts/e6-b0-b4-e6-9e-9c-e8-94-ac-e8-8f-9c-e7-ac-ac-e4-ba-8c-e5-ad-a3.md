@@ -1,0 +1,28 @@
+---
+title: 水果蔬菜第二季
+id: 576
+categories:
+  - 乱乱谈
+date: 2012-03-12 23:16:38
+tags:
+---
+
+继续果蔬练习。
+
+这葡萄怎么像是被打了一样，青一块紫一块的。嘴馋，好怀念德国超市里的葡萄~
+
+[![](http://lithilda.info/wp-content/uploads/2012/03/IMG_3020.jpg "IMG_3020")](http://lithilda.info/wp-content/uploads/2012/03/IMG_3020.jpg)
+
+线稿是在台灯光线下拍摄的，色差好大呀……
+
+[![](http://lithilda.info/wp-content/uploads/2012/03/IMG_3017.jpg "IMG_3017")](http://lithilda.info/wp-content/uploads/2012/03/IMG_3017.jpg)
+
+多拍了一张施工中：
+
+[![](http://lithilda.info/wp-content/uploads/2012/03/IMG_3018.jpg "IMG_3018")](http://lithilda.info/wp-content/uploads/2012/03/IMG_3018.jpg)
+
+还有一只白萝卜，本以为很简单的，没想到萝卜缨没弄好，有点杯具了。
+
+[![](http://lithilda.info/wp-content/uploads/2012/03/IMG_3021.jpg "IMG_3021")](http://lithilda.info/wp-content/uploads/2012/03/IMG_3021.jpg)
+
+这张太心急，忘了留底，线稿空缺……
