@@ -3,11 +3,11 @@
 ## Source: https://github.com/hexojs/hexo/
 
 # Site
-title: Hexo
+title: Dreamland
 subtitle:
 description:
-author: John Doe
-language:
+author: Lithilda
+language: zh-Hans
 timezone:
 
 # URL
@@ -63,9 +63,16 @@ pagination_dir: page
 # Extensions
 ## Plugins: https://hexo.io/plugins/
 ## Themes: https://hexo.io/themes/
-theme: landscape
+theme: next
 
 # Deployment
 ## Docs: https://hexo.io/docs/deployment.html
 deploy:
-  type:
+  type: rsync
+  host: geneva.jianshu.io
+  user: deployer
+  # root: <root>
+  # port: [port]
+  delete: true
+  verbose: true
+  ignore_errors: false
