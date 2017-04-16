@@ -71,8 +71,8 @@ deploy:
   type: rsync
   host: geneva.jianshu.io
   user: deployer
-  # root: <root>
+  root: /home/deployer/deploy/lithilda.com
   # port: [port]
-  delete: true
+  delete: false
   verbose: true
   ignore_errors: false
