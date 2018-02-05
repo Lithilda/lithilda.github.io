@@ -68,11 +68,14 @@ theme: next
 # Deployment
 ## Docs: https://hexo.io/docs/deployment.html
 deploy:
-  type: rsync
-  host: geneva.jianshu.io
-  user: deployer
-  root: /home/deployer/deploy/lithilda.com
-  # port: [port]
-  delete: false
-  verbose: true
-  ignore_errors: false
+  type: git
+  repo: git@github.com:larryzhao/lithilda.github.io.git
+  branch: gh-pages
+  # type: rsync
+  # host: geneva.jianshu.io
+  # user: deployer
+  # root: /home/deployer/deploy/lithilda.com
+  # # port: [port]
+  # delete: false
+  # verbose: true
+  # ignore_errors: false
