@@ -70,7 +70,7 @@ theme: next
 deploy:
   type: git
   repo: git@github.com:larryzhao/lithilda.github.io.git
-  branch: gh-pages
+  branch: master
   # type: rsync
   # host: geneva.jianshu.io
   # user: deployer
