@@ -68,15 +68,14 @@ theme: next
 # Deployment
 ## Docs: https://hexo.io/docs/deployment.html
 deploy:
-  type: git
-  # repo: git@github.com:larryzhao/lithilda.github.io.git
-  repo: git@git.coding.net:larryzhao/larryzhao.coding.me.git
-  branch: master
-  # type: rsync
-  # host: geneva.jianshu.io
-  # user: deployer
-  # root: /home/deployer/deploy/lithilda.com
-  # # port: [port]
-  # delete: false
-  # verbose: true
-  # ignore_errors: false
+  # type: git
+  # repo: git@github.com:Lithilda/lithilda.github.io.git
+  # branch: master
+  type: rsync
+  host: tokyo-fast.larryzhao.com
+  user: deployer
+  root: /var/www/lithilda.com
+  # port: [port]
+  delete: false
+  verbose: true
+  ignore_errors: false
